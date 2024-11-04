@@ -4,7 +4,7 @@
 
 🌱 I’m currently learning: foundations of coastal engineering and development of water quality sensors
 
-📫 How to reach me: lowerg@uncw.edu
+📫 How to reach me: glower@unc.edu
 
 😄 Pronouns: she/her/hers
 

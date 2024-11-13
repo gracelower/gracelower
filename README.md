@@ -8,4 +8,4 @@
 
 😄 Pronouns: she/her/hers
 
-⚡ Fun fact: I grew up in competitive dance and now am president of a dance team at UNC Chapel Hill! I also teach group fitness classes in Barre and Cardio Dance.
+⚡ Fun fact: I grew up in competitive dance and now am president of a dance team at UNC Chapel Hill!
